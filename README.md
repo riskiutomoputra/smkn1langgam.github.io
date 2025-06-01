@@ -1,0 +1,1 @@
+# smkn1langgam.github.io
